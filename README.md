@@ -1,0 +1,2 @@
+# adix
+nigg money 
